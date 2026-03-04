@@ -1,1 +1,1 @@
-Tutaj dodawaj swoje komentarze, wpierdol date i inicjaly i fajrant
+Tutaj dodawaj swoje komentarze itp wiadomix
